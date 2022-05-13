@@ -1,1 +1,3 @@
-
+                                                                   WIPER CONTROL SYSTEM 
+                                                                   
+    The traditional wiper system however requires driver constant attention in adjusting the wiper speed. Traditional windshield wiper speed constantly varies according to time and vehicle’s speed. Because the manual adjustment of the wiper distracts driver's attention, which may be a direct cause accidents.  A windscreen wiper or windshield wiper is a device used to remove rain and debris from a windscreen. Almost all motor vehicle, including trains, aircraft and watercraft, are equipped with such wipers, which are usually an essential requirement. A wiper generally consists of an arm, pivoting at one end and with a long rubber blade attached to the other.
